@@ -1,4 +1,4 @@
-# Where Shaping Reality is [OrganicallyGrown](http://davenportrootscompany.organicallygrown/) 
+# Where Shaping Reality is [OrganicallyGrown](http://davenportrootscompany.organicallygrown/)!
 
 From ancient roots we are growing future fruits and building [Domains](http://davenportrootscompany.hempdomain/) from a solid foundation with one [Handshake](https://handshake.org/) as [1timefeedomains](http://home.1timefeedomains/).
 
