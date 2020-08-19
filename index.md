@@ -1,6 +1,6 @@
 # Where Shaping Reality is [OrganicallyGrown](http://davenportrootscompany.organicallygrown/) 
 
-From ancient roots we are growing future fruits!!
+From ancient roots we are growing future fruits and building from a solid foundation with one [Handshake](https://handshake.org/) as [1timefeedomains](http://home.1timefeedomains/).
 
 ![dogwood bloosom](https://user-images.githubusercontent.com/37987346/90586437-31d33480-e1a5-11ea-9494-48fda41b18f3.jpg)
 
