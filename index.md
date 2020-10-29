@@ -1,10 +1,10 @@
 # Where Shaping Reality is [OrganicallyGrown](http://davenportrootscompany.organicallygrown/)!
 
-From ancient roots we are growing future fruits and building [Top Level Domains](http://davenportrootscompany.hempdomain/) from a solid foundation with one [Handshake](https://handshake.org/) as [1timefeedomains](http://home.1timefeedomains/).
+From ancient roots we are growing future fruits and building [Top Level Domains](http://davenportrootscompany.hempdomain/) from a solid foundation with one [Handshake](https://handshake.org/) at a time.
 
 ![dogwood bloosom](https://user-images.githubusercontent.com/37987346/90586437-31d33480-e1a5-11ea-9494-48fda41b18f3.jpg)
 
-pay in HNS [Handshakeherenow](http://hns.handshakeherenow/), send payments to these addresses to help Davenport Roots Company excel as an Organically Grown start-up buisness from the root zone to the browser.
+pay in HNS [Handshakeherenow](http://hns.handshakeherenow.hns.to/), send payments to these addresses to help Davenport Roots Company excel as an Organically Grown start-up buisness from the root zone to the browser.
 
 - ETH 0x5d9cb07d2f78dd60be6da855a97439c631d5b456
 
