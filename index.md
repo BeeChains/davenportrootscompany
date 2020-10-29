@@ -4,7 +4,7 @@ From ancient roots we are growing future fruits and building [Top Level Domains]
 
 ![dogwood bloosom](https://user-images.githubusercontent.com/37987346/90586437-31d33480-e1a5-11ea-9494-48fda41b18f3.jpg)
 
-pay in HNS [Handshakeherenow](http://hns.handshakeherenow.hns.to/), send payments to these addresses to help Davenport Roots Company excel as an Organically Grown start-up buisness from the root zone to the browser.
+pay in HNS [Handshakeherenow](http://hns.handshakeherenow.hns.to/), send payments to these addresses to help Davenport Roots Company excel as an Organically Grown start-up buisness from the root zone to the [UX-MINDS](http://ignite.ux-minds.hns.to/)
 
 - ETH 0x5d9cb07d2f78dd60be6da855a97439c631d5b456
 
