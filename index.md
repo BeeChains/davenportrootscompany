@@ -17,4 +17,5 @@ Send Contributions
 
 [Donate to The Cause!](https://www.paypal.com/donate?hosted_button_id=RSBVATUDQWWM6)
 
-
+Scan our QR code to make contributions!
+![image](https://user-images.githubusercontent.com/37987346/108932014-a389b080-7616-11eb-9662-07ef328f7250.png)
